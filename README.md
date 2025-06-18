@@ -1,8 +1,7 @@
 <h2>看片狂人官网，独树一帜的免费影视网站|网页版入口|下载</h2>
 <p>看片狂人是一个为影迷和剧迷打造的在线影视平台，致力于提供免费在线观看、超前点播以及高清视频资源下载服务。该网站每日更新全网最新的电影、电视剧、动漫、综艺、日剧、韩剧、美剧等高清资源，满足用户的多样化观影需求。其界面设计简洁大方，色彩搭配和谐，用户体验流畅，支持多种设备访问，包括电脑和手机。此外，网站还内置了智能推荐功能，根据用户的观影历史和喜好推荐相似影片，提升观影体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/2779.html" target="_blank"><strong>看片狂人官网最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/97703bfac418" target="_blank"><strong>⏬电子书/zlib资源包</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://kpkuang.sodanav.com/" target="_blank"><strong>看片狂人官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
